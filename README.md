@@ -364,3 +364,5 @@ Words can hurt.
 Words can heal.
 
 And sometimes, the person who has every reason to leave is the one who stays.
+**********************************
+** who is wrong???? The one who took serious about his words and end her life ??? or the one in the side of being never heard and need to take all the blame  for existing ?? **
